@@ -2,7 +2,7 @@
 
 🎓 B.Tech Computer Science (Information Technology)  
 📍 SRM Institute of Science and Technology, Chennai  
-📊 CGPA: 9.45/10  
+📊 CGPA: 9.62/10  
 
 📫 Email: vmadhav112005@gmail.com  
 🔗 LinkedIn: https://linkedin.com/in/vansh-madhav-012b7437b  
